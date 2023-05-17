@@ -1,0 +1,1 @@
+# Content-requirements-Internet-Shop
